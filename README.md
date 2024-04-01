@@ -22,6 +22,6 @@ contact me?
 
 discord: aufgeladen (747927665729732708)
 
-email: aufgeladen@protonmail.com
+email: aufgeladen@aufge1aden.de
 
 ?contact me
