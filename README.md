@@ -10,7 +10,7 @@ im from germany 🇩🇪
 
 my pronouns are he/him
 
-i know the basics of c/c#/c++/js/py
+i know the basics to read & edit c/c#/c++/js/py
 
 i speak german and english
 
@@ -19,10 +19,8 @@ i own the domain aufge1aden.de
 ...Facts about me
 
 
-contact me?
-
 discord: aufgeladen (747927665729732708)
 
-email: aufgeladen@aufge1aden.de
+email: aufgeladen@protonmail.com
 
-?contact me
+# FUCK EPIC GAMES
