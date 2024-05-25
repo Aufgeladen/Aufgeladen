@@ -14,7 +14,9 @@ i know the basics to read & edit c/c#/c++/js/py
 
 i speak german and english
 
-i own the domain aufge1aden.de
+i own the domains
+aufge1aden.de
+aufgeladen.dev
 
 ...Facts about me
 
