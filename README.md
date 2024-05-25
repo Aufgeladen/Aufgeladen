@@ -21,6 +21,6 @@ i own the domain aufge1aden.de
 
 discord: aufgeladen (747927665729732708)
 
-email: aufgeladen@mail.aufgeladen.dev
+email: aufgeladen@aufgeladen.dev
 
 # FUCK EPIC GAMES
