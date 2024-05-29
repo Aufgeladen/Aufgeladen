@@ -11,6 +11,7 @@ im from germany 🇩🇪
 my pronouns are he/him
 
 i know the basics to read & edit c/c#/c++/js/py
+i am a low level html dev
 
 i speak german and english
 
