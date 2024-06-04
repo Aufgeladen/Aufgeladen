@@ -22,7 +22,7 @@ aufgeladen.dev
 ...Facts about me
 
 
-discord: aufgeladen (747927665729732708)
+discord: temporary not available contact via email!
 
 email: aufgeladen@aufgeladen.dev
 
